@@ -1,1 +1,0 @@
-# ternencegithub.github.io
